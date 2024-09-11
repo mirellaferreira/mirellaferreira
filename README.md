@@ -5,4 +5,4 @@
 - Tenho 1,56 de altura 
 - Estudo no coléfio Visconde de Guarapuava desde o 8º ano
 - Meus cantores favoritos são: Kyan, Lana del Rey e Slipknot.
- https://media1.tenor.com/m/e5pYTKS0te0AAAAC/lana.gif
+![](https://tenor.com/btfM4.gif)
